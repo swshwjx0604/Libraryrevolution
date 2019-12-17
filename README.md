@@ -10,10 +10,10 @@
 网址如下：https://github.com/swshwjx0604/-/tree/master  
 文宣内容暂定格式：  
   
-自选内容+  
++自选内容+  
 自由世界的大门：https://github.com/wangvpn666/wangvpn  
-抢救回来的公众号文章：https://terminus2049.github.io/  
 志同道合者：https://pincong.rocks/  
++网址分享+
 我们终将在没有黑暗的地方相遇  
 **善良的你，即使认为它与你无关，也请不要随意将它丢弃，请让自由的火光延续**  
   
